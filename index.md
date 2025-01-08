@@ -8,13 +8,11 @@
 > **Johann Wolfgang von Goethe**
 
 * [Colony](colony)
-* [Independence](independence)
-* [Conflict](conflict)
 * [Strategy](strategy)
-* [Vision](vision)
-* [Struggle](struggle)
 
-Here, is concise brief of the circumstances in my home country when I completed school education in 1988.
+This is a very concise brief of the circumstances in my home country when I completed school education in 1988.  It is not a detailed assessment of the situation.
+I am merely positioning the strategic problem as a search for the right model of governance after independence.
+
 I joined the Institute of Fundamental Studies (IFS) in Hantana, Kandy as a Pre-university Research Associate (PRA) in 1989.
 I left for the USA for my undergraduate studies in 1990 and this background shaped my journey since then.
 
