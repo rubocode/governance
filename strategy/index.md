@@ -18,6 +18,7 @@ This tag line had mislead my translation.  The correct translation of "ධර්
 Now, the interesting question is to determine of this strategy to create "A Righteous Society" will solve our prblems satisfactorily.
 Will the rest of the world just rest and watch as we become _righteous_?  Does it require the rest of the world to become righteous or are they already fully there?
 Are we just fooling ourselves or is this a solid long term vision for us to become a prsperous nation?  What does development and righteousness aim for?  How do we measure progress?  Do we really know?
+Of course, I am describing my thought process at the ripe old age of just under 20 years old.
 
 How will our system of governance merge with the govenrnace system of the rest of the world?  How realistic are we that we can get there with the support of the rest of the world community?
 1988 was a whole lot of turmoil with the JVP and the LTTE both in armed conflict with the government.  We wanted to become a developed country but we had lost our way again.

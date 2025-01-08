@@ -11,6 +11,8 @@ After independence a united entrepreneurial aristocracy in Colombo (the current 
 
 He took the populist approach to grab power and had to cater to the whims of the largely uneducated masses.  He created a situation of identity politics (Sinhala and Tamil, Rich and Poor) and the country has not yet recovered.  It has been ideolgical war and swift power grabs since then.  SWRD had a few elite socialists on his side yet got killed by a bullet from a robe wearing monk.  By the late 1960s, the proletariat joined the power struggle backed by Russia and China.
 
+![photo](/governance/photos/lost.png)
+
 The Tamil speaking community (primarily Hindu) concentrated in the North, the East and some pockets in Colombo also joined the power struggle.  It was identity politics hell.  Short-sighted leaders created quite a mess.  Since the seventies, the USA/USSR cold war also got intensified until the USA took control in the nineties.  The country didn't know where it was headed.
 
 
