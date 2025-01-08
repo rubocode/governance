@@ -11,7 +11,7 @@ The Bandaranaikes were China-backed.
 
 The new slogan was "ධර්මිෂ්ඨ සමාජයක්."  For the longest time, I used to think that the English translation was "A Just Society."
 There was a film in the eighties named "උතුමාණනි" (Your Excellency).  The marketing tag was "යුක්තිය රජයන ලොවකට මා රැගෙන යන්න උතුමාණනි" (Take me into a world of Justice, Your Excellency).
-This tag line had mislead my translation.  The correct translation of "ධර්මිෂ්ඨ සමාජයක්." is "A Righteous Society."
+This tag line had mislead my translation.  The correct translation of "ධර්මිෂ්ඨ සමාජයක්" is "A Righteous Society."  Quite a difference!
 
 Now, the interesting question is to determine of this strategy to create "A Righteous Society" will solve our prblems satisfactorily.
 Will the rest of the world just rest and watch as we become _righteous_?  Does it require the rest of the world to become righteous or are they already fully there?
