@@ -26,6 +26,6 @@ You can get a coherent picture by combining the topic of governance problem with
 
 In 2028, I will cross the 40 year milestone on that bitter sweet journey.
 
-[Ruchira Bomiriya](/profile)
-January 8, 2025
+[Ruchira Bomiriya](/profile)  
+January 8, 2025  
 Colombo
