@@ -13,6 +13,8 @@ The new slogan was "ධර්මිෂ්ඨ සමාජයක්."  For the lo
 There was a film in the eighties named "උතුමාණනි" (Your Excellency).  The marketing tag was "යුක්තිය රජයන ලොවකට මා රැගෙන යන්න උතුමාණනි" (Take me into a world of Justice, Your Excellency).
 This tag line had mislead my translation.  The correct translation of "ධර්මිෂ්ඨ සමාජයක්" is "A Righteous Society."  Quite a difference!
 
+![photo](/governance/photos/righteous.png)
+
 Now, the interesting question is to determine of this strategy to create "A Righteous Society" will solve our prblems satisfactorily.
 Will the rest of the world just rest and watch as we become _righteous_?  Does it require the rest of the world to become righteous or are they already fully there?
 Are we just fooling ourselves or is this a solid long term vision for us to become a prsperous nation?
