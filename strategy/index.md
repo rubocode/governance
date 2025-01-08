@@ -28,4 +28,6 @@ How will our system of governance merge with the govenrnace system of the rest o
 I was selected to the University of Moratuwa after the 1988 GCE(A/L) examination, but the university was closed for almost three years after.
 
 I left for the USA for my undergraduate studies.  I had landed in the most developed country in the whole world.  How did they do it in a couple of hundred years?
-Woudln't it be interesting to find out?
+Woudln't it be interesting to find out?  It will help you to realize that a system of government in the abstract is simply a kind of an operating system.  
+I got my degree in Computer Engineering and Philosophy and took a course on the French Revolution while there.
+
