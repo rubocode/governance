@@ -31,6 +31,8 @@ I left for the USA for my undergraduate studies.  I had landed in the most devel
 Woudln't it be interesting to find out?  It will help you to realize that a system of government in the abstract is simply a kind of an operating system.
 I got my degree in Computer Engineering and Philosophy and took a course on the French Revolution while there.
 
+![photo](/governance/photos/noblest.png)
+
 Now, a computer operating system is a resource manager (governs the allocation and management of shared resources).  What would be the difference between a "Just Operating System" and "A Righteous One"?
 Rather philosophical considerations, don't you think?
 
