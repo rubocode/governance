@@ -16,7 +16,7 @@
 
 Here, is concise brief of the circumstances in my home country when I completed school education in 1988.
 
-I joined the Institute of Fundamental Studies (IFS) in Hantana, Kandy as a Pre-universirty Research Associate (PRA) in 1989.
+I joined the Institute of Fundamental Studies (IFS) in Hantana, Kandy as a Pre-university Research Associate (PRA) in 1989.
 
 I left for the USA for my undergraduate studies in 1990 and this background shaped my journey since then.
 
