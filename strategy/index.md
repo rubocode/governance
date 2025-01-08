@@ -9,7 +9,7 @@ He introduced a new constitution an for the first time the Executive Presidency 
 He also placed the country on a entreprenurial capitalist path and launched a series of large infrastructure projects funded and implemented by the West.
 The Bandaranaikes were China-backed.
 
-JRJ has played a key role in the Japanese Peace Treaty and helped Japan out as a long standing Asian Buddhist ally.  The Japanese backed JRJ to open up the economy and launch key infrastructure projects.
+JRJ had played a key role in the Japanese Peace Treaty and helped Japan out as a long standing Asian Buddhist ally.  The Japanese backed JRJ to open up the economy and launch key infrastructure projects.
 The Institute of Fundamental Studies (IFS) was also established with generous grants from Japan.
 
 The new slogan was "ධර්මිෂ්ඨ සමාජයක්."  For the longest time, I used to think that the English translation was "A Just Society."
