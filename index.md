@@ -20,9 +20,9 @@ I joined the Institute of Fundamental Studies (IFS) in Hantana, Kandy as a Pre-u
 
 I left for the USA for my undergraduate studies in 1990 and this background shaped my journey since then.
 
-You can get a coherent picture by combining the topic of governance problem with that of [learning](/learning), [computing](/computing), and [education](/education).
-
 ![photo](/governance/photos/candle.png)
+
+You can get a coherent picture by combining the topic of governance problem with that of [learning](/learning), [computing](/computing), and [education](/education).
 
 In 2028, I will cross the 40 year milestone on that bitter sweet journey.
 
