@@ -16,7 +16,7 @@ As it stands, the world is organized into countries with geographical borders.  
 
 Even the most powerful leader — therefore — has only a country as his tribe.  They are all competing for global resources and this mandates that each leader to protect and expand a border or acquire foreign resources inside the border instead of the larger good of humanity as a whole.  This is an arrangement for the survival of the fittest — not a global (or universal) meritocracy.  What a tragedy!
 
-There is a search for improvement but ultimately it is also a battle of ideologies about the best system of governance — a blueprint for a _Utopia_.  This multilateral competition of ideas leads to conflict and war.  The utopian ideal then becomes _Peace on Earth_.
+There is a search for improvement but ultimately it is also a battle of ideologies about the best system of governance — a blueprint for a **_Utopia_**.  This multilateral competition of ideas leads to conflict and war.  The utopian ideal then becomes **_Peace on Earth_**.
 
 > Glory to God in the highest, and on earth peace, good will toward men.  
 > **Luke 2:14 KJV**
