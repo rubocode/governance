@@ -1,8 +1,8 @@
 > [home](../)
 
-## Introduction
-
 ![photo](/governance/photos/peace.png)
+
+## Introduction
 
 > Our world is not divided by race, color, gender or religion.  Our world is divided into wise people and fools.  And fools divide themselves by race, color, gender or religion.
 > **Nelson Mandela**
