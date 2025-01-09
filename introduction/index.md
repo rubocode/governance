@@ -14,7 +14,7 @@ As it stands, the world is organized into countries with geographical borders.  
 > How could you say the best form of government is a republic if you think the universe is a monarchy?  
 > **Alan Watts**
 
-Even the most powerful leader — therefore — has only a country as his tribe.  They are all competing for global resources and this mandates that each leader to protect and expand a border or acquire foreign resources inside the border instead of the larger good of humanity as a whole.  This is an arrangement for the survival of the fittest — not a global (or universal) meritocracy.  What a tragedy!
+Even the most powerful leader — therefore — has only a country as his tribe.  They are all competing for global resources and this mandates each leader to protect and expand a border or acquire foreign resources inside the border instead of the larger good of humanity as a whole.  This is an arrangement for the survival of the fittest — not a global (or universal) meritocracy.  What a tragedy!
 
 There is a search for improvement but ultimately it is also a battle of ideologies about the best system of governance — a blueprint for a **_utopia_**.  This multilateral competition of ideas leads to conflict and war.  The utopian ideal then becomes **_peace on earth_**.
 
