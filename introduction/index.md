@@ -11,7 +11,7 @@ Governance is the practice of ensuring the survival, progress and success of you
 
 As it stands, the world is organized into countries with geographical borders.  The overlapping idea of nationality which is a result of gene pool management within borders necessarily complicates matters.  However, there is no position of global supreme commander — we simply have a collection of leaders of countries (multilateralism).
 
-> How could you say the best form of government is a republic if you think the universe is a monarchy?
+> How could you say the best form of government is a republic if you think the universe is a monarchy?  
 > **Alan Watts**
 
 Even the most powerful leader — therefore — has only a country as his tribe.  They are all competing for global resources and this mandates that each leader to protect and expand a border or acquire foreign resources inside the border instead of the larger good of humanity as a whole.  This is an arrangement for the survival of the fittest - not a global meritocracy.  What a tragedy.
