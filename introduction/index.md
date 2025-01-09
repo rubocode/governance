@@ -9,6 +9,9 @@
 
 Governance is the practice of ensuring the survival, progress and success of your tribe.  When you realize — at the highest level — that your tribe is humanity as a whole, the scope begins at the survival of the species.  Progress and success are the consequences of good leadership.
 
+> The reasonable man adapts himself to the world; the unreasonable man persists in trying to adapt the world to himself.  Therefore all progress depends on the unreasonable man.  
+> **George Bernard Shaw**
+
 As it stands, the world is organized into countries with geographical borders.  The overlapping idea of nationality which is a result of gene pool management within borders necessarily complicates matters.  However, there is no position of global supreme commander — we simply have a collection of leaders of countries (multilateralism).
 
 > How could you say the best form of government is a republic if you think the universe is a monarchy?  
