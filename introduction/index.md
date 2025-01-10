@@ -34,7 +34,7 @@ What would that look like?  How would it work?  What can we do now?  The search 
 > knock, and it shall be opened unto you:  
 > **Matthew 7:7 KJV**
 
-I have been studying operating systems in this light for a few decades with this large scope in mind.  Merely to understand what is important to separate the wheat from the chaff in the journey of life.  I am sharing the simplified core of my understanding so far.
+I have been studying operating systems in this light for a few decades with this broader scope in mind.  Merely to understand what is important to separate the wheat from the chaff in the journey of life.  I am sharing the simplified core of my understanding so far.
 
 > The noblest pleasure is the joy of understanding.  
 > **Leonardo Da Vinci**
