@@ -1,6 +1,4 @@
 > [home](/)
-> &bull; [strategy](/strategy)
-> &bull; [education](/education)
 
 ![banner](/governance/photos/banner.png)
 
