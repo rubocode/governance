@@ -8,3 +8,4 @@
 > **Johann Wolfgang von Goethe**
 
 * [Introduction](introduction)
+* [Vision Sri Lanka](/vision-lk)
