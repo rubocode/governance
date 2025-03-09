@@ -36,6 +36,9 @@ What would that look like?  How would it work?  What can we do now?  The search 
 
 I have been studying operating systems in this light for a few decades with this broader scope in mind.  Merely to understand what is important to separate the wheat from the chaff in the journey of life.  I am sharing the simplified core of my understanding so far.
 
+> Wisdom is the principal thing; therefore get wisdom: and with all thy getting get understanding.  
+> **Proverbs 4:7 KJV**
+
 > The noblest pleasure is the joy of understanding.  
 > **Leonardo Da Vinci**
 
