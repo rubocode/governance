@@ -42,10 +42,10 @@ I have been studying operating systems in this light for a few decades with this
 > The noblest pleasure is the joy of understanding.  
 > **Leonardo Da Vinci**
 
-> Depart from evil and do good; Seek peace and pursue it.  
-> **Psalm 34:14 NKJV**
-
 > The real voyage of discovery consists not in seeking new landscapes, but in having new eyes.  
 > **Marcel Proust**
+
+> Depart from evil and do good; Seek peace and pursue it.  
+> **Psalm 34:14 NKJV**
 
 Enjoy!
