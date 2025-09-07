@@ -10,3 +10,4 @@
 
 * [Introduction](introduction)
 * [Vision Sri Lanka](/vision-lk)
+* [Ideology](/ideology)
