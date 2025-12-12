@@ -1,5 +1,6 @@
 > [home](/)
 > &bull; [profile](/profile)
+> &bull; Work in progress...
 
 ![banner](/governance/photos/banner.png)
 
@@ -11,6 +12,6 @@
 | [Introduction](introduction) | [Vision Sri Lanka](/vision-lk) |
 
 * [Talent Management](talent)
-* [Asset Allocation](assets)
+* [Asset Allocation](asset)
 * [Value Creation](value)
 * [Equal Opportunity](equal)
