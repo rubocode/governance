@@ -1,6 +1,6 @@
 > [home](../)
 
-![photo](/governance/photos/peace.png)
+![banner](/governance/photos/banner.png)
 
 ## Introduction
 
