@@ -13,7 +13,7 @@ Government needs to be fair, just, peaceful and progressive.
 It is for the good of all.
 
 Business is different.  Businesses can hire and fire workers.
-People can join and leave businesses.
+People can join or leave and support or abandon businesses.
 It is for the profit of the owners.
 
 It is mandatory for a person to be a citizen.
