@@ -1,4 +1,4 @@
-> [fundamentals](../)
+> [mechanics](../)
 
 ![banner](/governance/photos/banner.png)
 

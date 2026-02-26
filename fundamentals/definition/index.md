@@ -1,4 +1,4 @@
-> [background](../)
+> [fundamentals](../)
 
 ![banner](/governance/photos/banner.png)
 
