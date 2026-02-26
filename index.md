@@ -1,5 +1,5 @@
 > [home](/)
-> &bull; [visionLK&trade;](/vision-lk)
+> &bull; [visionLK](/vision-lk)
 > &bull; Work in progress...
 
 ![banner](/governance/photos/banner.png)
