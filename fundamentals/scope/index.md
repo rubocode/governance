@@ -17,4 +17,4 @@ People can join and leave businesses.
 It is for the profit of the owners.
 
 It is mandatory for a person to be a citizen.
-But it is not mandatory for a person to be a customer.
+But it is not mandatory for a person to be an employee or a customer.
