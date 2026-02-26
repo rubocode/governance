@@ -1,5 +1,4 @@
 > [home](/)
-> &bull; [profile](/profile)
 > &bull; [Vision Sri Lanka](/vision-lk)
 > &bull; Work in progress...
 
