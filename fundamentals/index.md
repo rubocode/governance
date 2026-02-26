@@ -2,7 +2,7 @@
 
 ![banner](/governance/photos/banner.png)
 
-## Background
+## Fundamentals 
 
-* [Definition](definition)
 * [Rationale](rationale)
+* [Scope](scope)
