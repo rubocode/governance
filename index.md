@@ -10,4 +10,5 @@
 > **Johann Wolfgang von Goethe**
 
 * [Introduction](introduction)
+* [Background](background)
 * [Fundamentals](fundamentals)
