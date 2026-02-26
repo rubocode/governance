@@ -1,5 +1,5 @@
 > [home](/)
-> &bull; [Vision Sri Lanka](/vision-lk)
+> &bull; [visionLK&trade;](/vision-lk)
 > &bull; Work in progress...
 
 ![banner](/governance/photos/banner.png)
