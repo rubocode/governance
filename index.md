@@ -9,8 +9,6 @@
 > The best government is that which teaches us to govern ourselves.  
 > **Johann Wolfgang von Goethe**
 
-| [Geopolitics](/geopolitics) | [Ideology](/ideology) |
-
 * [Introduction](introduction)
 * [Fundamentals](fundamentals)
 * [Mechanics](mechanics)
