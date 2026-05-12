@@ -16,5 +16,5 @@ Business is different.  It is for the profit of the owners.
 It is competitive.  Businesses can hire and fire workers.
 People can join or leave and support or abandon businesses.
 
-It is mandatory for a person to be a citizen.
-But it is not mandatory for a person to be an employee or a customer.
+It is not mandatory for a person to be an employee or a customer.
+However, it is mandatory for a person to be a citizen.
