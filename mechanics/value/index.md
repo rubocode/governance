@@ -1,4 +1,4 @@
-> [home](../)
+> [mechanics](../)
 
 ![banner](/governance/photos/banner.png)
 
