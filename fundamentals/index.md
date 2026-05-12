@@ -4,8 +4,8 @@
 
 ## Fundamentals 
 
-> There is a natural aristocracy among men.
-> The grounds of this are virtue and talent.  
+> There is a natural aristocracy among men,
+> the grounds of which are virtue and talent.  
 > **Thomas Jefferson**
 
 * [Rationale](rationale)
